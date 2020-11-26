@@ -8,7 +8,7 @@
 - Omar Trejo
 - March, 2017
 
-Road map for 5 days of activities using Design Thinking process.
+Road map for 5 days of activities using the Design Thinking process.
 
 ---
 
